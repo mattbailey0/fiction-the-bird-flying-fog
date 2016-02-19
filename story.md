@@ -12,15 +12,21 @@ Love memories swamp.
 
 She felt her legs disappear first and then her hands.  Then his hands went too.  All these years of weary, weary, weariness lifting out of her one by one.  Years of this house and just keeping him alive, all the while her own time running out.  Trying to finish a crossword.  Or clean the bathroom, with him there needing her. Michael's shaking hands dropping a box of toothpicks once; that was her soul, toothpicks from a box.  Only flying, not falling – her soul was years and years and years, lifting out of her one by by one, small and balsa, until they were gone.
 
-She went slack in his hands
-what to do so he just kept shaking
-maybe she’ll wake up, he thought, imagine her awake, 
-shaking her awake
-and imagine frost-burnt foliage.
+She remembered their flight to London when they were so young. It was her first flight and his and when there was turbulance she reached for his hand only to find he was already white knuckling the armrest and so she wrapped her hand around his, feeling the scratch of his knuckle hair against her palm and the unwieldy largeness of his bones. The air was spicy with tobacco smoke and lilac perfume as the plane shook them all.  She passed through her fear to a vivid exhilaration.  To be turbulent over an ocean with a man and to feel his knuckle hairs while you breathed thin air in the brilliant sunlight through warm windows.  She was bounced in her seat secured by the belt and felt like Audrey Hepburn. The plane bounced again and Michael let out a little "oomph" noise and put his other hand over his face.  She looked at him and loved him very, very much. Oh!
+
+Later when things quieted down she waited until she was sure he was asleep then scrounged under her seat. He was breathing heavily and it slowed her flappimg heart; she pulled out her bag furtively so as not to wake him.  The stewardess came by and she allowed herself a Red Rose. She took out the papers and graded quietly so he wouldn't wake and be ashamed. 
+
+They landed with a bump! It was strange to feel the rubber wheels bounce through the undercarriage.  
+
+
+
+She went slack in his hands what to do so he just kept shaking. Maybe she’ll wake up, he thought, imagine her awake, shaking her awake and imagine frost-burnt foliage.
+
+---
 
 He couldn’t use the phone any more so it wasn’t until Tuesday when Meals on Wheels came that the body was found.  He’d tried to tidy the dishes, moving most of them to the kitchen, and a few to the bathroom, muttering.
 
-Sarah Winslow had delivered this route for almost a year now and she was proud of that. She rang the door and he answered it after the long shuffling walk from his easy chair by the television.  It was two days gone if he could just remember.
+Sarah had delivered this route for almost a year now and she was proud of that. She rang the door and he answered it after the long shuffling walk from his easy chair by the television.  It was two days gone if he could just remember.
 
 He looked lively this morning.  “Good morning, Mr. Cassidy.  How are you today?”
 
