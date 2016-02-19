@@ -16,7 +16,7 @@ She remembered their flight to London when they were so young. It was her first 
 
 Later when things quieted down she waited until she was sure he was asleep then scrounged under her seat. He was breathing heavily and it slowed her flappimg heart; she pulled out her bag furtively so as not to wake him.  The stewardess came by and she allowed herself a Red Rose. She took out the papers and graded quietly so he wouldn't wake and be ashamed. 
 
-They landed with a bump! It was strange to feel the rubber wheels bounce through the undercarriage.  
+They landed with a bump! It was strange to feel the rubber wheels bounce through the undercarriage.  She looked out the window at the shrubs and asphalt as the plane taxied trying to see its Britishness.
 
 
 
